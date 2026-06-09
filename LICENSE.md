@@ -1,4 +1,4 @@
-# 
+# Elite pump.fun sniper bot tools for Mac OS | New pump.fun sniper bot tools for PC Windows. Featuring liquidity pool scanning and Web3 connectivity — optimized for maximum performance on every platform.
 
 
 
